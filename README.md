@@ -1,0 +1,1 @@
+# minimaldesign-KZT.github.io
